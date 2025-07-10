@@ -15,4 +15,4 @@
 为了保障用户的隐私和数据安全，平台通常会使用HTTPS加密传输，确保用户的观看记录和个人数据不会被泄露。此外，平台还会避免过多的广告干扰，让用户享受无干扰的观看体验。  
 总之，免费成人高清视频平台凭借其高清画质、流畅播放、隐私保护和免注册观看功能，已经成为现代用户观看成人影片的首选平台。无论是影片的选择还是观看体验，平台都能够为用户提供极大的便利和享受。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/aiy456547/ribennn35219)</span>
